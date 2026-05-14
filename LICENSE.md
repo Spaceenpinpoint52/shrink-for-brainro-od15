@@ -1,4 +1,4 @@
-#  
+#  Experience shrink for brainrots like never before with custom shrink for brainrots Scripts, the #1 Script. Includes auto-sell and no cooldown for
 
 
 
